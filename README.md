@@ -1,1 +1,4 @@
-# week1
+# Zulkarnain Zahrawan Mayuridh
+
+
+hello dunia
